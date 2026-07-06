@@ -1,4 +1,4 @@
-# 
+# VIP mean reversion trading bot flujo de trabajo for Mac OS | Premium mean reversion trading bot flujo de trabajo for PC Windows. Featuring API de intercambio centralizado and comercio de futuros — optimized for maximum performance.
 
 
 
